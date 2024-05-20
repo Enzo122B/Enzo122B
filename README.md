@@ -1,4 +1,4 @@
-### Hi there 👋
+### Oi, só quero dizer que ODEIO o alura,ODEIO programação, e talvez eu odeie você também 
 
 <!--
 **Enzo122B/Enzo122B** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
